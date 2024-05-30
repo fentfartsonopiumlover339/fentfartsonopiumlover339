@@ -1,2 +1,2 @@
-<img src="/fentfartsonopiumlover339/main/tenor.gif" width="200px">
+<img src="/fentfartsonopiumlover339/tenor.gif" width="200px">
 
