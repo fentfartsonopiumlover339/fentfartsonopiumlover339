@@ -1,2 +1,2 @@
-![tenor](https://c.tenor.com/ffDhnzwUYZAAAAAd/tenor.gif)
+![image](https://c.tenor.com/ffDhnzwUYZAAAAAd/tenor.gif)
 
